@@ -2,7 +2,7 @@
 
 I'm Veena Govind. 
 
-❤️Passionate with with problem solving
+❤️Passionate about problem solving
 
 
 <!--
